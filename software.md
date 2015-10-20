@@ -1,9 +1,8 @@
 樊锟 201434063 商英1401
+
  Today I will talk about a kind of software called WeChat. I believe all the people know about WeChat although young people like students don’t like to use WeChat. They always use another chatting application called QQ. It’s undeniable that also so many people use it like ourteachers and parents .In following part I will talk about the function, the shortage and the demand of me about WeChat.
  
- 
 Firstly, I will talk about the function. As everyone knows, we can use WeChat to chat with each other. We can send word message as well as voice message and we can also send video message in about 10 seconds. We can also chat in a group. It is really a good chance for people to set up and develop our friendship. WeChat has a function called friend circle.We can send photos to show our mind, our daily life and our girlfriend or boyfriend to our friends to share our happiness or sadness. In friend circle,we can also send only word or send a video in about 10 seconds. And we can also send a chaining about life or emotion to our friends. Even though, friend circle is like a supermarket now. So many people sell things in friend circle. What’s more, WeChat has a different function from another chatting application called WeChat public number. The developers and the merchants always have a public number. They can send information about their products or about their activities. It’s really a great platform for people to know what they want to know.
-
 
 Secondly, I will talk about the shortage about WeChat. It is undeniable that WeChat is a great application. But it also has some shortages. You will be added in a group chatting without agreement.You can always find that you are in a group chatting but you don’t know everyone in the group. I believe it is really an annoyed matter. No one wants to chat with the passer-by. At the least I don’t like to chat with the people I don’t know. What’s more, it is unclear to find how to send only word in friend circle, I see many times my friend asks how to send only word in friend circle. Above all, WeChat has some shortages but it is still a great application.
 
